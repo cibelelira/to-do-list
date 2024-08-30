@@ -1,1 +1,1 @@
-to do list feita por diversão no tédio ૮₍ ´ ꒳ `₎ა
+estava no tédio e decidi fazer isso ૮₍ ´ ꒳ `₎ა
